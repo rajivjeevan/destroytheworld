@@ -1,3 +1,3 @@
 # destroytheworld
-I aw want ot destro project
-### this ia fafaf
+I want to start this project
+### this is great
